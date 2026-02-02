@@ -1,6 +1,8 @@
+I made this project on the issue of Pollution!
 The pollution is becoming the big problem of Pakistan as well as Whole world.
 The important measures should be taken to solve it.
 It is and will kill alot of people in the world.
 Alot of deseases are got spread just because of pollution.
 There should be several organisations that work to control the pollution issues.
 Local people should also take initiatives and control measures to finish the pollution results.
+Because of pollution many viruses are spreading due to which many people are loosing their lives.
